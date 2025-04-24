@@ -1,0 +1,1 @@
+game only for pc
